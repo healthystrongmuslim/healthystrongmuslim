@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @healthystrongmuslim
-- 👀 I’m interested in Fiqh of Suicide Bombing
-- 🌱 I’m currently learning to drive
+- 👀 I’m interested in the Fiqh of Suicide Bombing
+- 🌱 I’m currently learning to improve my sleep
 - 💞️ I’m looking to collaborate on marriage
 - 📫 How to reach me 
 
